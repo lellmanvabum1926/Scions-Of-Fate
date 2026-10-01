@@ -228,4 +228,4 @@ Scions of Fate is offered as a complete and **official free version**, providing
 Get started on your epic adventure today! Download **Scions of Fate** for free and explore a unique MMORPG experience!
 
 ---
-**Last updated:** 2026-10-01 19:59:24 UTC
+**Last updated:** 2026-10-01 23:46:36 UTC
